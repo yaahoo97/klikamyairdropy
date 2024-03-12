@@ -1,4 +1,4 @@
 # klikamyairdropy
 Leo App
 
-Disocrd Name: yaahoo97
+Discord Name: yaahoo97
